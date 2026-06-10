@@ -10,7 +10,7 @@ Hiiiii I'm reworking my bio into github cause it was on patreon before and it lo
 ***
 
 ### BYI:
-- I am an adult and not looking for a partner. Do not flirt with me, *especially if youre a minor*
+- I am a GROWN ADULT and not looking to edate so dont hit on me randomly *especially if youre a minor*
 - I hide at my own discretion and without warning
 - Being autistic psychotic and a system means I have a lot of issues beyond just being crazy about being fictional characters. Be patient with me
 - Feel free to touch cuddle boop etc any int is ok I dont mind at all!!!!
