@@ -3,7 +3,8 @@
 Theyre vaguely in an order of highest to lowest but Im deranged about all of them. Not big on doubles but if you dont mention it around me its fine
 
 - [sunohara "momo" momose](https://idolish7.fandom.com/wiki/Momo) he/she  
-- [raeliana mcmillan](https://at-the-dukes-mansion.fandom.com/wiki/Raeliana_McMillan)  
+- [raeliana mcmillan](https://at-the-dukes-mansion.fandom.com/wiki/Raeliana_McMillan)
+- [adachi rei](https://vocalsynth.fandom.com/wiki/Adachi_Rei)  
 - [furina](https://genshin-impact.fandom.com/wiki/Furina) they/he  
 - [rimuru tempest](https://tensura.fandom.com/wiki/Rimuru_Tempest) he/it/they  
 - [fuyuko mayuzumi](https://project-imas.wiki/Fuyuko_Mayuzumi)  
