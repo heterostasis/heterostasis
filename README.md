@@ -21,7 +21,7 @@ Hiiiii I'm reworking my bio into github cause it was on patreon before and it lo
 
 ### DNI:
 - Into lolisho or incest
-- Minors
+- Under the tender age of 18
 - Thats literally it idgaf otherwise
 
 Do not talk about proship/anti discourse with me I am so serious both sides are stupid as hell and I really really *really* dont care. If u fit my DNI stay away if u dont were friends mwah
