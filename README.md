@@ -1,6 +1,6 @@
 # Hi guys I'm Raeli :)
 **24 ; ask for prns (they/he is usually ok) ; white+indigenous brazilian**  
-**[1](https://hashihime-of-the-old-book-town.fandom.com/wiki/Tamamori)+[2](https://modao-zushi.fandom.com/wiki/Wei_Wuxian)**  
+**[1](https://hashihime-of-the-old-book-town.fandom.com/wiki/Tamamori)+[2](https://modao-zushi.fandom.com/wiki/Wei_Wuxian)** unfortunately  
 **Tmasc genderfluid. T4T nblnb. Aspec.**  
 **OSDD system**  
 **BPD+Autism+ADHD so be nice to me thanks**  
