@@ -5,7 +5,7 @@
 **OSDD system**  
 **BPD+Autism+ADHD so be nice to me thanks**  
 
-Hiiiii I'm reworking my bio into github cause it was on patreon before and it looks bad. Anyway hi my name is Raeli welcome to my twisted mind. I'm normal about everything and I love <ins>**you**</ins> ♡
+Hiiiii I'm reworking my pony town bio into github cause it was on patreon before and it looks bad. Anyway hi my name is Raeli welcome to my twisted mind. I'm normal about everything and I love <ins>**you**</ins> ♡
 
 ***
 
