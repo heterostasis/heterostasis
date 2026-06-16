@@ -28,4 +28,22 @@ Please dont bother me with proship/anti discourse I am so serious. My frontal lo
 
 ***
 
-My **interests** include: VNs (mainly blvns, denpa & otome); shoujosei / joseimuke / otomege; idolge & mobage (uma, i7, twst, imas + more); genshin + hsr; horror; bl + danmei; seiyuu; vtubers; rpgmakers; idv; animanga; literature; pkmn; [music](MUSIC.md) + singing; fashion; typology; web design; vsynths. Also here is my [kinlist](EVIL.md) if you even care
+My **interests** include:
+- VNs (mainly blvns, denpa & otome)
+- vocal synths
+- shoujosei / joseimuke / otomege
+- idolge & mobage (uma, i7, twst, imas + more)
+- genshin + hsr
+- rpgmakers
+- horror
+- bl + danmei
+- seiyuu
+- idv
+- animanga
+- literature
+- pokemon
+- vtubers
+- [music](MUSIC.md) + singing
+- fashion
+
+Also here is my [kinlist](EVIL.md) if you even care
