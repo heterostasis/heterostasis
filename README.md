@@ -30,7 +30,7 @@ Please dont bother me with proship/anti discourse I am so serious. My frontal lo
 
 My **interests** include:
 - VNs (mainly blvns, denpa & otome)
-- vocal synths
+- vocal synths (especially cover making & technical stuff)
 - shoujosei / joseimuke / otomege
 - idolge & mobage (uma, i7, twst, imas + more)
 - genshin + hsr
