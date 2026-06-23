@@ -33,7 +33,7 @@ My **interests** include:
 - VNs (mainly blvns, denpa & otome)
 - vocal synths (especially cover making & technical stuff)
 - shoujosei / joseimuke / otomege
-- idolge & mobage (uma, i7, twst, imas + more)
+- idolge & mobage (imas, uma, i7, twst, a3 + more)
 - genshin + hsr
 - rpgmakers
 - horror
