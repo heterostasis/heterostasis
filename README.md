@@ -17,7 +17,7 @@ Hiiiii I'm reworking my pony town bio into github cause it was on patreon before
 - I afk and tab out often so if you want me to see your message its better to whisper me otherwise I prob wont see it
 - I'm always down to chat / make friends esp if we have the same interests!!! feel free to talk 2 me I dont bite ^__^ (ok maybe a little but like in the nice way)
 - Ship int/rp is okay but dont flirt with me as a person if we dont know each other thanks (also if I say I dont like the ship please respect that ty)
-- I dont use tone indicators personally but if you need them let me know and Ill make an effort to use them for you ^__^ I dont mind if you use them for me/others ofc
+- I dont use tone indicators personally but if you need them let me know and Ill make an effort to use them for you ^__^ I dont mind if you use them for me/others at all ofc
 - Idrc if you take inspo from my skins (tho I dont think I'm that good anyway) but please dont like copy them outright :(
 
 ### DNI:
